@@ -1,0 +1,2 @@
+# silhouette-perde
+Silhouette Perde Sistemleri modern mekan tasarım unsurları arasındaki yerini aldı. Yaşam alanlarınıza şık bir görüntü katan silhouette perdeler tam kapalı konumdayken dışarısı ve içerisi görünmez. Küçük bir hareket ile yaklaşık olarak 3 cm yukarı açılarak dışarısı görünebilir duruma gelir. Silhouette perdenin mekanik aksamı stor perde mekaniğine benzer.   http://www.pergoperde.com.tr/#!silhouette-perde/
